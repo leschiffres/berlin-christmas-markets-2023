@@ -1,55 +1,55 @@
-## 2023-11-16
+## 2023-11-16, Thursday
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-17
+## 2023-11-17, Friday
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-18
+## 2023-11-18, Saturday
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-19
+## 2023-11-19, Sunday
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-20
+## 2023-11-20, Monday
 - [Weihnachten an der Spree - all-inclusive Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-spree-all-inclusive-weihnachtsmarkt-berlin-3182.html), address: [Spreespeicher an der Oberbaumbrücke Stralauer Allee 2 10245 Berlin](https://maps.app.goo.gl/9GNV78jQoBvmV9vE7)
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-21
+## 2023-11-21, Tuesday
 - [Weihnachten an der Spree - all-inclusive Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-spree-all-inclusive-weihnachtsmarkt-berlin-3182.html), address: [Spreespeicher an der Oberbaumbrücke Stralauer Allee 2 10245 Berlin](https://maps.app.goo.gl/9GNV78jQoBvmV9vE7)
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-22
+## 2023-11-22, Wednesday
 - [Weihnachten an der Spree - all-inclusive Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-spree-all-inclusive-weihnachtsmarkt-berlin-3182.html), address: [Spreespeicher an der Oberbaumbrücke Stralauer Allee 2 10245 Berlin](https://maps.app.goo.gl/9GNV78jQoBvmV9vE7)
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-23
+## 2023-11-23, Thursday
 - [Weihnachten an der Spree - all-inclusive Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-spree-all-inclusive-weihnachtsmarkt-berlin-3182.html), address: [Spreespeicher an der Oberbaumbrücke Stralauer Allee 2 10245 Berlin](https://maps.app.goo.gl/9GNV78jQoBvmV9vE7)
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-24
+## 2023-11-24, Friday
 - [Weihnachten an der Spree - all-inclusive Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-spree-all-inclusive-weihnachtsmarkt-berlin-3182.html), address: [Spreespeicher an der Oberbaumbrücke Stralauer Allee 2 10245 Berlin](https://maps.app.goo.gl/9GNV78jQoBvmV9vE7)
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-25
+## 2023-11-25, Saturday
 - [Weihnachten an der Spree - all-inclusive Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-spree-all-inclusive-weihnachtsmarkt-berlin-3182.html), address: [Spreespeicher an der Oberbaumbrücke Stralauer Allee 2 10245 Berlin](https://maps.app.goo.gl/9GNV78jQoBvmV9vE7)
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-26
+## 2023-11-26, Sunday
 - [Weihnachten an der Spree - all-inclusive Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-spree-all-inclusive-weihnachtsmarkt-berlin-3182.html), address: [Spreespeicher an der Oberbaumbrücke Stralauer Allee 2 10245 Berlin](https://maps.app.goo.gl/9GNV78jQoBvmV9vE7)
 - [Winterzauber Berlin - Weihnachtsmarkt an der Landsberger Allee](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-berlin-weihnachtsmarkt-3079.html), address: [Landsberger Allee 300 10365 Berlin](https://maps.app.goo.gl/MSf5pSxjkbM82dU79)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-27
+## 2023-11-27, Monday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -61,7 +61,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-28
+## 2023-11-28, Tuesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -73,7 +73,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-29
+## 2023-11-29, Wednesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -85,7 +85,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-11-30
+## 2023-11-30, Thursday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -97,7 +97,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-01
+## 2023-12-01, Friday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -112,7 +112,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-02
+## 2023-12-02, Saturday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -130,7 +130,7 @@
 - [Winterzauber Weihnachtsmarkt im Strandbad Wendenschloss in Berlin-Köpenick](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-weihnachtsmarkt-strandbad-wendenschloss-berlin-koepenick-3249.html), address: [Strandbad Wendenschloss Möllhausenufer 30 12557 Berlin - Köpenick](https://maps.app.goo.gl/nhGrN8XD7fKwE7RH7)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-03
+## 2023-12-03, Sunday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Advents-Ökomarkt Grüne Liga Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/advents-oekomarkt-gruene-liga-berlin-379.html), address: [Kollwitzplatz 10405 Berlin](https://maps.app.goo.gl/CQa6BuStrVrr1VVz6)
@@ -148,7 +148,7 @@
 - [Winterzauber Weihnachtsmarkt im Strandbad Wendenschloss in Berlin-Köpenick](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-weihnachtsmarkt-strandbad-wendenschloss-berlin-koepenick-3249.html), address: [Strandbad Wendenschloss Möllhausenufer 30 12557 Berlin - Köpenick](https://maps.app.goo.gl/nhGrN8XD7fKwE7RH7)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-04
+## 2023-12-04, Monday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -160,7 +160,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-05
+## 2023-12-05, Tuesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -172,7 +172,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-06
+## 2023-12-06, Wednesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -184,7 +184,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-07
+## 2023-12-07, Thursday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -196,7 +196,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-08
+## 2023-12-08, Friday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -213,7 +213,7 @@
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
 - [Alt-Rixdorfer Weihnachtsmarkt](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/alt-rixdorfer-weihnachtsmarkt-1475.html), address: [Richardplatz 12043 Berlin-Neukölln](https://maps.app.goo.gl/DEUBuo3svYWSyCVr7)
-## 2023-12-09
+## 2023-12-09, Saturday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -235,7 +235,7 @@
 - [Kunstadvent in Berlin-Friedrichshagen](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/kunstadvent-berlin-friedrichshagen-3226.html), address: [Historisches Rathaus Friedrichshagen Bölschestr. 87/88 12587 Berlin-Friedrichshagen](https://maps.app.goo.gl/WCP7oLBeJLVeUEi5A)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
 - [Alt-Rixdorfer Weihnachtsmarkt](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/alt-rixdorfer-weihnachtsmarkt-1475.html), address: [Richardplatz 12043 Berlin-Neukölln](https://maps.app.goo.gl/DEUBuo3svYWSyCVr7)
-## 2023-12-10
+## 2023-12-10, Sunday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Advents-Ökomarkt Grüne Liga Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/advents-oekomarkt-gruene-liga-berlin-379.html), address: [Kollwitzplatz 10405 Berlin](https://maps.app.goo.gl/CQa6BuStrVrr1VVz6)
@@ -254,7 +254,7 @@
 - [Winterzauber Weihnachtsmarkt im Strandbad Wendenschloss in Berlin-Köpenick](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-weihnachtsmarkt-strandbad-wendenschloss-berlin-koepenick-3249.html), address: [Strandbad Wendenschloss Möllhausenufer 30 12557 Berlin - Köpenick](https://maps.app.goo.gl/nhGrN8XD7fKwE7RH7)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-11
+## 2023-12-11, Monday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -266,7 +266,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-12
+## 2023-12-12, Tuesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -278,7 +278,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-13
+## 2023-12-13, Wednesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -290,7 +290,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-14
+## 2023-12-14, Thursday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -302,7 +302,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-15
+## 2023-12-15, Friday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -319,7 +319,7 @@
 - [Hüttenzauber & Märchenwald Köpenick in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/huettenzauber-maerchenwald-koepenick-berlin-3413.html), address: [Terrasse des Auflugslokal Mutter Lustig Müggelheimer Str. 1 12555 Berlin - Köpenick](https://maps.app.goo.gl/HrEvmStiJ1NgpZkc6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-16
+## 2023-12-16, Saturday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -341,7 +341,7 @@
 - [Rudower Adventsmeile](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/rudower-adventsmeile-2809.html), address: [Krokusstraße 12357 Berlin Neukölln](https://maps.app.goo.gl/YvCU7Cpxh5LJmykt5)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-17
+## 2023-12-17, Sunday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Advents-Ökomarkt Grüne Liga Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/advents-oekomarkt-gruene-liga-berlin-379.html), address: [Kollwitzplatz 10405 Berlin](https://maps.app.goo.gl/CQa6BuStrVrr1VVz6)
@@ -356,7 +356,7 @@
 - [Winterzauber Weihnachtsmarkt im Strandbad Wendenschloss in Berlin-Köpenick](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-weihnachtsmarkt-strandbad-wendenschloss-berlin-koepenick-3249.html), address: [Strandbad Wendenschloss Möllhausenufer 30 12557 Berlin - Köpenick](https://maps.app.goo.gl/nhGrN8XD7fKwE7RH7)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-18
+## 2023-12-18, Monday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -368,7 +368,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-19
+## 2023-12-19, Tuesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -380,7 +380,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-20
+## 2023-12-20, Wednesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -392,7 +392,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-21
+## 2023-12-21, Thursday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Lucia Weihnachtsmarkt Kulturbrauerei Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/lucia-weihnachtsmarkt-kulturbrauerei-berlin-380.html), address: [KulturBrauerei Schönhauser Allee 36 10435 Berlin](https://maps.app.goo.gl/dFA6WsbdFtKJbDpAA)
@@ -404,7 +404,7 @@
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Christmas Avenue Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/christmas-avenue-berlin-3001.html), address: [Nollendorfplatz 10777 Berlin Schöneberg](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
 - [Historischer Weihnachtsmarkt in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/historischer-weihnachtsmarkt-berlin-2781.html), address: [RAW-Gelände Revaler Straße 99 10245 Berlin-Friedrichshain](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
-## 2023-12-22
+## 2023-12-22, Friday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
@@ -413,7 +413,7 @@
 - [WeihnachtsZauber Gendarmenmarkt an der Staatsoper](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszauber-gendarmenmarkt-1477.html), address: [Bebelplatz 10117 Berlin](https://maps.app.goo.gl/25vXgYXWhH3bXY9y5)
 - [Berlin - Spandauer Weihnachtsmarkt und Lichterzauber Zitadelle](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/berlin-spandau-spandauer-weihnachtsmarkt-1510.html), address: [Zitadelle Spandau Am Juliusturm 64 13599 Berlin](https://maps.app.goo.gl/TTm9PssysEHAKEiN9)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
-## 2023-12-23
+## 2023-12-23, Saturday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
@@ -422,7 +422,7 @@
 - [Berlin - Spandauer Weihnachtsmarkt und Lichterzauber Zitadelle](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/berlin-spandau-spandauer-weihnachtsmarkt-1510.html), address: [Zitadelle Spandau Am Juliusturm 64 13599 Berlin](https://maps.app.goo.gl/TTm9PssysEHAKEiN9)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Winterzauber Weihnachtsmarkt im Strandbad Wendenschloss in Berlin-Köpenick](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-weihnachtsmarkt-strandbad-wendenschloss-berlin-koepenick-3249.html), address: [Strandbad Wendenschloss Möllhausenufer 30 12557 Berlin - Köpenick](https://maps.app.goo.gl/nhGrN8XD7fKwE7RH7)
-## 2023-12-24
+## 2023-12-24, Sunday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
@@ -431,7 +431,7 @@
 - [Berlin - Spandauer Weihnachtsmarkt und Lichterzauber Zitadelle](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/berlin-spandau-spandauer-weihnachtsmarkt-1510.html), address: [Zitadelle Spandau Am Juliusturm 64 13599 Berlin](https://maps.app.goo.gl/TTm9PssysEHAKEiN9)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
 - [Winterzauber Weihnachtsmarkt im Strandbad Wendenschloss in Berlin-Köpenick](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterzauber-weihnachtsmarkt-strandbad-wendenschloss-berlin-koepenick-3249.html), address: [Strandbad Wendenschloss Möllhausenufer 30 12557 Berlin - Köpenick](https://maps.app.goo.gl/nhGrN8XD7fKwE7RH7)
-## 2023-12-25
+## 2023-12-25, Monday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
@@ -439,7 +439,7 @@
 - [WeihnachtsZauber Gendarmenmarkt an der Staatsoper](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszauber-gendarmenmarkt-1477.html), address: [Bebelplatz 10117 Berlin](https://maps.app.goo.gl/25vXgYXWhH3bXY9y5)
 - [Berlin - Spandauer Weihnachtsmarkt und Lichterzauber Zitadelle](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/berlin-spandau-spandauer-weihnachtsmarkt-1510.html), address: [Zitadelle Spandau Am Juliusturm 64 13599 Berlin](https://maps.app.goo.gl/TTm9PssysEHAKEiN9)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
-## 2023-12-26
+## 2023-12-26, Tuesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
@@ -447,7 +447,7 @@
 - [WeihnachtsZauber Gendarmenmarkt an der Staatsoper](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszauber-gendarmenmarkt-1477.html), address: [Bebelplatz 10117 Berlin](https://maps.app.goo.gl/25vXgYXWhH3bXY9y5)
 - [Berlin - Spandauer Weihnachtsmarkt und Lichterzauber Zitadelle](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/berlin-spandau-spandauer-weihnachtsmarkt-1510.html), address: [Zitadelle Spandau Am Juliusturm 64 13599 Berlin](https://maps.app.goo.gl/TTm9PssysEHAKEiN9)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
-## 2023-12-27
+## 2023-12-27, Wednesday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
@@ -455,7 +455,7 @@
 - [WeihnachtsZauber Gendarmenmarkt an der Staatsoper](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszauber-gendarmenmarkt-1477.html), address: [Bebelplatz 10117 Berlin](https://maps.app.goo.gl/25vXgYXWhH3bXY9y5)
 - [Berlin - Spandauer Weihnachtsmarkt und Lichterzauber Zitadelle](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/berlin-spandau-spandauer-weihnachtsmarkt-1510.html), address: [Zitadelle Spandau Am Juliusturm 64 13599 Berlin](https://maps.app.goo.gl/TTm9PssysEHAKEiN9)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
-## 2023-12-28
+## 2023-12-28, Thursday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
@@ -463,7 +463,7 @@
 - [WeihnachtsZauber Gendarmenmarkt an der Staatsoper](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszauber-gendarmenmarkt-1477.html), address: [Bebelplatz 10117 Berlin](https://maps.app.goo.gl/25vXgYXWhH3bXY9y5)
 - [Berlin - Spandauer Weihnachtsmarkt und Lichterzauber Zitadelle](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/berlin-spandau-spandauer-weihnachtsmarkt-1510.html), address: [Zitadelle Spandau Am Juliusturm 64 13599 Berlin](https://maps.app.goo.gl/TTm9PssysEHAKEiN9)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
-## 2023-12-29
+## 2023-12-29, Friday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
@@ -471,7 +471,7 @@
 - [WeihnachtsZauber Gendarmenmarkt an der Staatsoper](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszauber-gendarmenmarkt-1477.html), address: [Bebelplatz 10117 Berlin](https://maps.app.goo.gl/25vXgYXWhH3bXY9y5)
 - [Berlin - Spandauer Weihnachtsmarkt und Lichterzauber Zitadelle](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/berlin-spandau-spandauer-weihnachtsmarkt-1510.html), address: [Zitadelle Spandau Am Juliusturm 64 13599 Berlin](https://maps.app.goo.gl/TTm9PssysEHAKEiN9)
 - [Winterwelt Potsdamer Platz Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/winterwelt-potsdamer-platz-berlin-1513.html), address: [Potsdamer Platz 10117 Berlin](https://maps.app.goo.gl/5abyHXA2PRygDHae6)
-## 2023-12-30
+## 2023-12-30, Saturday
 - [Weihnachtsmarkt vor dem Schloss Charlottenburg](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-vor-dem-schloss-charlottenburg-1627.html), address: [zw. Luisen- & Klausenerplatz Spandauer Damm 14059 Berlin](https://maps.app.goo.gl/rTQEKsMdZLCsW42L6)
 - [Weihnachtszeit Rotes Rathaus Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtszeit-rotes-rathaus-berlin-352.html), address: [St. Marienkirche & Rotes Rathaus Karl-Liebknecht-Str. 10178 Berlin](https://maps.app.goo.gl/QBX4aYtKjEMj2cKu9)
 - [Weihnachtsmarkt Gedächtniskirche Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-gedaechtniskirche-berlin-1628.html), address: [Kaiser-Wilhelm-Gedächtnis-Kirche Breitscheidplatz 10789 Berlin](https://maps.app.goo.gl/DjLcxHMBajrQ1zW58)
