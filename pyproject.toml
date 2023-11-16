@@ -1,0 +1,19 @@
+[tool.poetry]
+name = "berlin-christmas-markets"
+version = "0.1.0"
+description = ""
+authors = ["letsiosm@gmail.com"]
+readme = "README.md"
+
+[tool.poetry.dependencies]
+python = "^3.10"
+jupyter = "^1.0.0"
+requests = "^2.31.0"
+bs4 = "^0.0.1"
+pandas = "^2.1.3"
+ipdb = "^0.13.13"
+
+
+[build-system]
+requires = ["poetry-core"]
+build-backend = "poetry.core.masonry.api"
