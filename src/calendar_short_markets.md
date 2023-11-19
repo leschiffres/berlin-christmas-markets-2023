@@ -1,4 +1,3 @@
-## 2023-11-18, Saturday
 ## 2023-11-19, Sunday
 ## 2023-11-20, Monday
 ## 2023-11-21, Tuesday
@@ -22,28 +21,28 @@
 ## 2023-12-06, Wednesday
 ## 2023-12-07, Thursday
 ## 2023-12-08, Friday
-- [Weihnachts-Basar im Lichthof des Auswärtigen Amtes in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachts-basar-lichthof-auswaertiges-amt-berlin-3367.html), address: [Lichthof des Auswärtigen Amts Werderschen Markt 1 10117 Berlin](https://maps.app.goo.gl/5kjqVTjKXhXJ1gmq7)
-- [Alt-Rixdorfer Weihnachtsmarkt](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/alt-rixdorfer-weihnachtsmarkt-1475.html), address: [Richardplatz 12043 Berlin - Neukölln](https://maps.app.goo.gl/YvCU7Cpxh5LJmykt5)
+- [Weihnachts-Basar im Lichthof des Auswärtigen Amtes in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachts-basar-lichthof-auswaertiges-amt-berlin-3367.html), address: [Lichthof des Auswärtigen Amts Werderschen Markt 1 10117 Berlin](https://maps.app.goo.gl/icK5tu6ZkvEEfdPc6)
+- [Alt-Rixdorfer Weihnachtsmarkt](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/alt-rixdorfer-weihnachtsmarkt-1475.html), address: [Richardplatz 12043 Berlin - Neukölln](https://maps.app.goo.gl/gDihRbFGJsUKsPo17)
 ## 2023-12-09, Saturday
 - [18. Weihnachtsmarkt Frohnau](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-frohnau-393.html), address: [Johanneskirche  Zeltinger Platz 18 13465 Berlin](https://maps.app.goo.gl/StJyT3ugduKwYAC77)
 - [Weihnachtsmarkt Jagdschloss Grunewald](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-jagdschloss-grunewald-1512.html), address: [Schlosshof Hüttenweg 100  14193 Berlin](https://maps.app.goo.gl/gPDjMsrZt5tmKDno6)
-- [Kunstadvent in Berlin-Friedrichshagen](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/kunstadvent-berlin-friedrichshagen-3226.html), address: [Historisches Rathaus Friedrichshagen Bölschestr. 87/88 12587 Berlin - Friedrichshagen](https://maps.app.goo.gl/1JunUEkxpzzsch616)
-- [Alt-Rixdorfer Weihnachtsmarkt](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/alt-rixdorfer-weihnachtsmarkt-1475.html), address: [Richardplatz 12043 Berlin - Neukölln](https://maps.app.goo.gl/YvCU7Cpxh5LJmykt5)
-- [Kladower Christkindlmarktes](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/kladower-christkindlmarktes-2807.html), address: [Imchenplatz  14089 Berlin - Spandau](https://maps.app.goo.gl/E6xGPqh33KRnzDqD8)
+- [Kunstadvent in Berlin-Friedrichshagen](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/kunstadvent-berlin-friedrichshagen-3226.html), address: [Historisches Rathaus Friedrichshagen Bölschestr. 87/88 12587 Berlin - Friedrichshagen](https://maps.app.goo.gl/WCP7oLBeJLVeUEi5A)
+- [Alt-Rixdorfer Weihnachtsmarkt](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/alt-rixdorfer-weihnachtsmarkt-1475.html), address: [Richardplatz 12043 Berlin - Neukölln](https://maps.app.goo.gl/gDihRbFGJsUKsPo17)
+- [Kladower Christkindlmarktes](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/kladower-christkindlmarktes-2807.html), address: [Imchenplatz  14089 Berlin - Spandau](https://maps.app.goo.gl/x1sYoJDfzenFvTFh6)
 ## 2023-12-10, Sunday
 ## 2023-12-11, Monday
 ## 2023-12-12, Tuesday
 ## 2023-12-13, Wednesday
 ## 2023-12-14, Thursday
 ## 2023-12-15, Friday
-- [Weihnachtsmarkt Köpenick ](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-koepenick-1503.html), address: [Schlossplatz Schlossinsel 12555 Berlin - Köpenick](https://maps.app.goo.gl/nhGrN8XD7fKwE7RH7)
-- [Hüttenzauber & Märchenwald Köpenick in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/huettenzauber-maerchenwald-koepenick-berlin-3413.html), address: [Terrasse des Auflugslokal Mutter Lustig Müggelheimer Str. 1 12555 Berlin - Köpenick](https://maps.app.goo.gl/mZKu7rKHGcmqhdoaA)
+- [Weihnachtsmarkt Köpenick ](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-koepenick-1503.html), address: [Schlossplatz Schlossinsel 12555 Berlin - Köpenick](https://maps.app.goo.gl/VNciZPRjPgDDxcht8)
+- [Hüttenzauber & Märchenwald Köpenick in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/huettenzauber-maerchenwald-koepenick-berlin-3413.html), address: [Terrasse des Auflugslokal Mutter Lustig Müggelheimer Str. 1 12555 Berlin - Köpenick](https://maps.app.goo.gl/oFRaA89DeUkjuaYr8)
 ## 2023-12-16, Saturday
 - [Vegan-vegetarischer Weihnachtsmarkt The Green Market Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/vegan-vegetarischer-weihnachtsmarkt-the-green-market-berlin-2668.html), address: [Alte Münze Am Molkenmarkt 2 10179 Berlin](https://maps.app.goo.gl/YhwACjRHANbWvwgU6)
-- [Weihnachtsmarkt Köpenick ](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-koepenick-1503.html), address: [Schlossplatz Schlossinsel 12555 Berlin - Köpenick](https://maps.app.goo.gl/nhGrN8XD7fKwE7RH7)
-- [Hüttenzauber & Märchenwald Köpenick in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/huettenzauber-maerchenwald-koepenick-berlin-3413.html), address: [Terrasse des Auflugslokal Mutter Lustig Müggelheimer Str. 1 12555 Berlin - Köpenick](https://maps.app.goo.gl/mZKu7rKHGcmqhdoaA)
-- [Weihnachten in Westend in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-westend-2808.html), address: [Preußenallee 14052 Berlin Charlottenburg-Wilmersdorf](https://maps.app.goo.gl/WCP7oLBeJLVeUEi5A)
-- [Rudower Adventsmeile](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/rudower-adventsmeile-2809.html), address: [Krokusstraße 12357 Berlin Neukölln](https://maps.app.goo.gl/kZvwamgcYr8oTLA5A)
+- [Weihnachtsmarkt Köpenick ](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachtsmarkt-koepenick-1503.html), address: [Schlossplatz Schlossinsel 12555 Berlin - Köpenick](https://maps.app.goo.gl/VNciZPRjPgDDxcht8)
+- [Hüttenzauber & Märchenwald Köpenick in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/huettenzauber-maerchenwald-koepenick-berlin-3413.html), address: [Terrasse des Auflugslokal Mutter Lustig Müggelheimer Str. 1 12555 Berlin - Köpenick](https://maps.app.goo.gl/oFRaA89DeUkjuaYr8)
+- [Weihnachten in Westend in Berlin](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/weihnachten-westend-2808.html), address: [Preußenallee 14052 Berlin Charlottenburg-Wilmersdorf](https://maps.app.goo.gl/YZkqyDL79AdqhCJX6)
+- [Rudower Adventsmeile](https://www.deutsche-weihnachtsmaerkte.de/weihnachtsmarkt/in/berlin/rudower-adventsmeile-2809.html), address: [Krokusstraße 12357 Berlin Neukölln](https://maps.app.goo.gl/UAxG8k6hmt1MNavX7)
 ## 2023-12-17, Sunday
 ## 2023-12-18, Monday
 ## 2023-12-19, Tuesday
